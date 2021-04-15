@@ -1,1 +1,1 @@
-I am the inspiration to the programmers around me 💪 💪
+I am the inspiration to the everybody around me 💪 💪
